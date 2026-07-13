@@ -1,12 +1,14 @@
-● 🖖🤓 Hi, I’m @Jey88 (you can call me Mari or Jey), nice to meet you 🩵 ~~~
 
-● 🎁 In my free time I enjoy researching anthropology and literature topics 🥸 ~~~
 
-● 🔮 I’m a 2D artist who specializes in character design 🤠 ~~~
+● 🖖🤓 𝐇𝖾ᥣᥣⱺ, 𝚰’ꭑ (@𝐉𝖾𝗒88) (𝐁υ𝗍 𝗒ⱺυ 𝖼α𐓣 α𝗌 ω𝖾ᥣᥣ 𝖼αᥣᥣ ꭑ𝖾 𝐌α𝗋𝗂 ⱺ𝗋 𝐉𝖾𝗒), 𝗂𝗍 𝗂𝗌 𝗏𝖾𝗍𝗒 𐓣𝗂𝖼𝖾 𝗍ⱺ ꭑ𝖾𝖾𝗍 𝗒ⱺυ 🩵 ~
 
-● 🎭 I’m looking to collaborate on creative projects and contribute to them freely 🎀 🫶 ~~~
+● 🎁 𝐀 ᥣ𝗂𝗍𝗍ᥣ𝖾 αᑲⱺυ𝗍 ꭑ𝗒 ɦⱺᑲᑲ𝗂𝖾𝗌: 𝚰𐓣 ꭑ𝗒 𝖿𝗋𝖾𝖾 𝗍𝗂ꭑ𝖾 𝚰 𝖾𐓣𝗃ⱺ𝗒 𝗋𝖾𝗌𝖾α𝗋𝖼ɦ𝗂𐓣𝗀 α𐓣𝗍ɦ𝗋ⱺρⱺᥣⱺ𝗀𝗒 α𐓣ᑯ ᥣ𝗂𝗍𝖾𝗋α𝗍υ𝗋𝖾 𝗍ⱺρ𝗂𝖼𝗌, αᥣ𝗌ⱺ ᑯ𝗋αω𝗂𐓣𝗀, 𝗌𝗍υᑯ𝗒𝗂𐓣𝗀 𝖾ᥣ𝖾𝖼𝗍𝗋ⱺ𐓣𝗂𝖼𝗌 ⱺ𝗋 ᑯⱺ𝗂𐓣𝗀 𝗌ⱺꭑ𝖾 ρɦ𝗒𝗌𝗂𝖼αᥣ α𝗋𝗍 🥸 ~
 
-● 🪅 How to reach me: shoot me a DM here or on telegram {t.me/jeylime} (I'm more likely to see it there) 🖼 ~~~
+● 🔮 𝚰’ꭑ α 2𝐃 α𝗋𝗍𝗂𝗌𝗍 ωɦⱺ 𝖾𝗌ρ𝖾𝖼𝗂αᥣᥣ𝗒 𝖾𐓣𝗃ⱺ𝗒𝗌 𝗏α𝗋𝗂ⱺυ𝗌 𝖼ɦα𝗋α𝖼𝗍𝖾𝗋 ᑯ𝖾𝗌𝗂𝗀𐓣𝗌 α𐓣ᑯ 𝖿υ𐓣 ωα𝗒𝗌 𝗍ⱺ 𝗂ꭑρ𝗋ⱺ𝗏𝖾 𝗍ɦ𝖾ꭑ 🤠 ~
+
+● 🎭 𝚰’ꭑ ᥣⱺⱺ𝗄𝗂𐓣𝗀 𝗍ⱺ 𝖼ⱺᥣᥣαᑲⱺ𝗋α𝗍𝖾 ⱺ𐓣 𝖼𝗋𝖾α𝗍𝗂𝗏𝖾 ρ𝗋ⱺ𝗃𝖾𝖼𝗍𝗌 α𐓣ᑯ 𝖼ⱺ𐓣𝗍𝗋𝗂ᑲυ𝗍𝖾 𝗍ⱺ 𝗍ɦ𝖾ꭑ 𝖿𝗋𝖾𝖾ᥣ𝗒 ⱺ𝗋 α𝗌 α𝗀𝗋𝖾𝖾ᑯ υρⱺ𐓣 🎀 🫶 ~
+
+● 🪅 𝐇ⱺω 𝗍ⱺ 𝗋𝖾α𝖼ɦ ꭑ𝖾: 𝗌ɦⱺⱺ𝗍 ꭑ𝖾 α 𝐃𝐌 ɦ𝖾𝗋𝖾 ⱺ𝗋 ⱺ𐓣 𝐓𝐆 {𝗍.ꭑ𝖾/𝗃𝖾𝗒ᥣ𝗂ꭑ𝖾} (𝚰'ꭑ ꭑⱺ𝗋𝖾 ᥣ𝗂𝗄𝖾ᥣ𝗒 𝗍ⱺ 𝗌𝖾𝖾 𝗂𝗍 𝗍ɦ𝖾𝗋𝖾) 🖼 ~
 
 <!---
 Jey88/Jey88 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
